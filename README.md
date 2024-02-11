@@ -1,1 +1,1 @@
-✨[doyouwannagooutwithme](https://junioralive.github.io/doyouwannagooutwithme/) 
+✨[doyouwannagooutwithme](http://wannago.junioralive.in/) 
